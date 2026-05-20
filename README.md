@@ -67,6 +67,11 @@
 
 
 ### 📢 毕业论文官方通知要点解读
+<img width="1280" height="479" alt="image" src="https://github.com/user-attachments/assets/70221891-7225-47e3-bd4b-8e0e478d280b" />
+
+<img width="1280" height="651" alt="image" src="https://github.com/user-attachments/assets/2d53ff3d-5347-43c0-93e8-9eff282ec074" />
+
+<img width="1280" height="408" alt="image" src="https://github.com/user-attachments/assets/0b5c960f-0458-4632-b7b6-710fa6b21e34" />
 
 学院会发布毕业论文相关通知，通知的**附录**里包含后续所需的所有资料模板。以下对通知中几个重要附件和关键条目进行说明：
 
