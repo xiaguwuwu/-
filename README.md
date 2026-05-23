@@ -12,6 +12,7 @@
 - 答辩地点通常在**兴庆校区**，盖章和审核也大多在兴庆，建议材料备齐后统一跑一趟
 - 具体时间节点每年会变，务必持续关注 **学部官网：https://eiegrad.xjtu.edu.cn/index.htm**
 - PPT模板：https://vi.xjtu.edu.cn/
+- 论文模板：https://gs.xjtu.edu.cn/info/1148/11178.htm
 
 ---
 
